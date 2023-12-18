@@ -2,11 +2,13 @@
 -[Prabhashankar Mishra](https://github.com/Pro7Prabhakar)
 - [Shashanks0616](https://github.com/Shashank
 -[Kushal1o1](https://github.com/kushal1o1)
+-[TheRealAdegoke](https://github.com/TheRealAdegoke)
 -[Abhigyan Ranjan](https://github.com/Abhigyan-RA)
 -[Abhishek Kumar](https://github.com/ima-bhi)
 -[Samuel Tesema](https://github.com/Samuel12451)
 -[Ayooluwa Adedipe](https://github.com/Ay-slim)
 -[Shravan Bobade](https://github.com/Shravan250)
+-[Richard Emijere] (https://github.com/The-CodeINN)
 -[Raja Poudel](https://github.com/RajaPdl453)
 -[Zwe Ko Ko Aung](https://github.com/ZweKo11/)
 -[Vaibhav Sharma  from India] (https://github.com/Vaibhav4228)
